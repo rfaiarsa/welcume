@@ -10,6 +10,6 @@ certification :
 <a href="https://drive.google.com/file/d/1glftR8g02cq3xqaOD5vP9cdHfxMpcjZL/view?usp=sharing">Microsoft Literacy/a>
 <a href="https://drive.google.com/file/d/1cGV5ZO4NtiySyFBz2Fu3pgLnK_RM1K7A/view?usp=sharing">Pelatihan Elektronika Dinas Pendidikan Jatim</a>
 
-<h1><b><a href="https://www.behance.net/rfaiarsa">CORETANKU DI COREL & PHOTOSHOP</a></h1></b>
+<h1><b><a href="https://www.behance.net/rfaiarsa">Mampir ke Desainku yuk</a></h1></b>
 
 </pre>
